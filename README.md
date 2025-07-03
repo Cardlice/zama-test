@@ -1,6 +1,6 @@
 **ZAMA**
 
-**Socials:
+**Socials:**
 
-***Twitter
+***Twitter**
 https://x.com/zama_fhe
